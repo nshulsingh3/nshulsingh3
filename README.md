@@ -11,8 +11,7 @@
 
 🎯 After joining my first and current company, I got to be a part of ReactJS Bootcamp and post completing that I've delivered in multiple projects as a React resource. 
 
-
-❤ I love watching anime, playing chess and on weekend nights, I'm usually found playing CSGO. 🎮
+❤ Watching anime aand playing chess are my all time escapes.
 
 
 
